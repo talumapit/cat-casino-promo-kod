@@ -2,7 +2,7 @@
 
 ## Cat casino промокод на - бонус 100% к депозиту + 100 FS - E100
 
-## [CAT CASINO САЙТ](https://linksc.ru/cat_fvip)
+## [CAT CASINO САЙТ](https://linkcasino.ru/cat_e100)
 
 После регистрации бонусы нужно активировать: внести депозит 500 рублей на игровой счет!
 
